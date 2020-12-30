@@ -1,0 +1,1 @@
+flour 1-cup, 1 egg, melted butter 1 table spoon,half cup milk, baking powder half tea spoon, pinch of salt

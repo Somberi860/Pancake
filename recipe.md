@@ -1,0 +1,1 @@
+First add flour,baking powder,pinch of salt mix the ingredientes along with this add 1 egg,1 table spoon of melted butter, half cup milk mix every thing heat the pan and put the Pancake mixer as required ones the pancake is ready flip both sides and serve with honey. 
